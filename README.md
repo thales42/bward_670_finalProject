@@ -3,7 +3,7 @@ Missing files(2):
 
 My apologies, firstandforemost. For some unknown reason two files failed to upload. 
 
-Links for the file are provided below for Google drive. Let me know if you have problems>
+Links for the file are provided below for Google drive. Let me know if you have problems.
 
 Best,
 
